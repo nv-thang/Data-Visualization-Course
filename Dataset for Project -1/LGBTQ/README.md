@@ -1,0 +1,1 @@
+### LGBTQ: [Elected LGBTQ officials]()
